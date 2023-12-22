@@ -1,2 +1,0 @@
-# ljkarel
-Personal page
